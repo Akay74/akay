@@ -1,4 +1,4 @@
-Full Name: Akachukwu Udeh
+Full Name: Akachukwu Chinecherem Udeh
 
 Email Address: akaudeh@gmail.com
 
